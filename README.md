@@ -4,7 +4,9 @@
 `send you my love on a wire!`
 ------------------------------------------------------------------------------
 call me *ayan/ayano* - i use **any pronouns**
-     
+
+fandom *please* int! c*h is enc. pls **dnc** my skins
+
   i am **VERY** hyperfixated into unstable universe and my favourite duo is ___justice duo!___ (if you couldnt tell)
 i am also in other fandoms such as guts and blackpowder, alien stage, frieren, lifesteal, and mcyt overall
 
