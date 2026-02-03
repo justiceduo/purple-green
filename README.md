@@ -1,5 +1,5 @@
 # purple-green
-<img width="787" height="457" alt="image" src="https://github.com/user-attachments/assets/b711a224-85ac-4ec5-aef5-d9151fa9904b" />
+<img width="787" height="457" alt="image" src="https://github.com/user-attachments/assets/6a40ebb8-3986-41ef-93f7-1d2bedd1a663" />
 
 `send you my love on a wire!`
 ------------------------------------------------------------------------------
@@ -12,7 +12,7 @@ i am also in other fandoms such as guts and blackpowder, alien stage, frieren, l
 
 **DNI** boundary breakers and general dni criteria
 
-  <img width="554" height="457" alt="image" src="https://github.com/user-attachments/assets/d5b6792d-be80-471c-8b24-e6c1f1b596b0" />
+  <img width="554" height="457" alt="image" src="https://github.com/user-attachments/assets/e93ed59b-e902-4453-89dd-3def2e96854c" />
 
  `i'm not used to running away in such quick succession. ` -w
   
