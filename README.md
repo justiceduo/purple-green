@@ -13,9 +13,9 @@ i am also in other fandoms such as guts and blackpowder, alien stage, frieren, l
 
   <img width="554" height="457" alt="image" src="https://github.com/user-attachments/assets/d5b6792d-be80-471c-8b24-e6c1f1b596b0" />
 
- `i'm not used to running away in such quick succession. `
+ `i'm not used to running away in such quick succession. ` -w
   
- ` i am. `
+ ` i am. ` -p
   --
 
-  art cred by on X/twitter!
+  art cred by nykvee and beakdmac on X/twitter!
